@@ -1,3 +1,3 @@
-## My Protfolio
+## My Portfolio
 
 https://joshuabrigati.com
